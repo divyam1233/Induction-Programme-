@@ -36,3 +36,15 @@ After that CSE and IT students gathered in auditorium for expert talks by:
 
 Buddy4Study team guided students on scholarship opportunities for 1st year.
 
+
+# Day 3
+It was another day full of inspiration, interaction and introspection for our CSE and IT freshers!
+
+Some experts or professionals were there in auditorium to deliver their proficient lectures. The dignitaries were : 
+* Dr. Jaswinder Singh (renowned for JaswinS Lab on Wheels) brought Physics & Maths to life through fun, simplified experiments and demonstrations.
+* Dr. Priya Darshani continued with "Universal Human Values – 1", enriching young minds with clarity and purpose.
+* Chief Guest: S. Gurucharan Singh Grewal, Secretary – SGPC encouraged students with his motivating words.
+
+At last, interactive discussion sessions followed, where students reflected on their English & Maths proficiency test results from Day 3.
+
+Learning, laughter and self–discovery — all rolled into one powerful day!
