@@ -23,3 +23,5 @@ The event concluded with a Vote of Thanks by Dr. K.S.Mann, HOD IT.
 
 # Day 2
 The induction program continued with more engaging activities. From exploring values to assessing skills, the day was packed with a purpose! 
+
+English and Maths Proficiency Tests were conducted for all streams to assess foundational skills. 
