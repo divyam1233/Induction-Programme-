@@ -18,3 +18,8 @@ The Guests of Honour skyrocketed the pace of the moment by their inspirational a
 * Er. Rakesh Kumar — GNDEC Alumnus (Batch 1991), ADC Ludhiana
 
 The event concluded with a Vote of Thanks by Dr. K.S.Mann, HOD IT.
+
+
+
+# Day 2
+The induction program continued with more engaging activities. From exploring values to assessing skills, the day was packed with a purpose! 
