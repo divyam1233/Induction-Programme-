@@ -17,11 +17,22 @@ The Guests of Honour skyrocketed the pace of the moment by their inspirational a
 * Er. Ravinder Garg — Chief Engineer, Municipal Corporation, Ludhiana
 * Er. Rakesh Kumar — GNDEC Alumnus (Batch 1991), ADC Ludhiana
 
-The event concluded with a Vote of Thanks by Dr. K.S.Mann, HOD IT.
+The event in auditorium concluded with a Vote of Thanks by Dr. K.S.Mann, HOD IT.
 
+Eventually there was a department tour for every branch just to give us the knowledge regarding our respective branches and subjects. There we got to know the concept of mentorship. After that we were told about working of labs. 
+
+Hence the event culminated on a happy note.
 
 
 # Day 2
 The induction program continued with more engaging activities. From exploring values to assessing skills, the day was packed with a purpose! 
 
-English and Maths Proficiency Tests were conducted for all streams to assess foundational skills. 
+English and Maths Proficiency Tests were conducted for all streams to assess foundational skills. The tests included questions from grassroot level to competency level to check the retaining power and test our knowledge of previous classes. 
+
+After that CSE and IT students gathered in auditorium for expert talks by: 
+* Dr. Priya Darshni on "Universal Human Values – 1"
+* Dr. Arvind Dhingra on student development via STEP & TAC
+* Dr. Arashdeep Singh on "Food: A Pivotal Role in Student's Overall Wellness"
+
+Buddy4Study team guided students on scholarship opportunities for 1st year.
+
