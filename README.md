@@ -8,16 +8,16 @@ Then there was arrangement of offertory i.e. langar seva. Eating it helped pacif
 After that all the students gathered in the auditorium. Students were introduced to the college's legacy through a college orientation presentation, followed by a motivational video featuring proud alumni of the college — Sangam Arora and Arshpreet Singh (Batch 2025) — sharing how dedication and involvement beyond the classroom shaped their successful journeys.
 
 Later insightful addresses were shared by:
-* Dr. Sehijpal Singh (Principal)
-* Dr. Harpreet Kaur Grewal (HOD, Applied Sciences)
-* Dr. Akshay Girdhar (Dean Academics)
-* Dr. Parminder Singh (Dean Student Welfare)
+* __Dr. Sehijpal Singh__ (Principal)
+* __Dr. Harpreet Kaur Grewal__ (HOD, Applied Sciences)
+* __Dr. Akshay Girdhar__ (Dean Academics)
+* __Dr. Parminder Singh__ (Dean Student Welfare)
 
 The Guests of Honour skyrocketed the pace of the moment by their inspirational and positive words. The Guests of Honour were: 
-* Er. Ravinder Garg — Chief Engineer, Municipal Corporation, Ludhiana
-* Er. Rakesh Kumar — GNDEC Alumnus (Batch 1991), ADC Ludhiana
+* __Er. Ravinder Garg__ — Chief Engineer, Municipal Corporation, Ludhiana
+* __Er. Rakesh Kumar__ — GNDEC Alumnus (Batch 1991), ADC Ludhiana
 
-The event in auditorium concluded with a Vote of Thanks by Dr. K.S.Mann, HOD IT.
+The event in auditorium concluded with a Vote of Thanks by __Dr. K.S.Mann__, HOD IT.
 
 Eventually there was a department tour for every branch just to give us the knowledge regarding our respective branches and subjects. There we got to know the concept of mentorship. After that we were told about working of labs. 
 
@@ -30,9 +30,9 @@ The induction program continued with more engaging activities. From exploring va
 English and Maths Proficiency Tests were conducted for all streams to assess foundational skills. The tests included questions from grassroot level to competency level to check the retaining power and test our knowledge of previous classes. 
 
 After that CSE and IT students gathered in auditorium for expert talks by: 
-* Dr. Priya Darshni on "Universal Human Values – 1"
-* Dr. Arvind Dhingra on student development via STEP & TAC
-* Dr. Arashdeep Singh on "Food: A Pivotal Role in Student's Overall Wellness"
+* __Dr. Priya Darshni__ on "Universal Human Values – 1"
+* __Dr. Arvind Dhingra__ on student development via STEP & TAC
+* __Dr. Arashdeep Singh__ on "Food: A Pivotal Role in Student's Overall Wellness"
 
 Buddy4Study team guided students on scholarship opportunities for 1st year.
 
@@ -41,9 +41,9 @@ Buddy4Study team guided students on scholarship opportunities for 1st year.
 It was another day full of inspiration, interaction and introspection for our CSE and IT freshers!
 
 Some experts or professionals were there in auditorium to deliver their proficient lectures. The dignitaries were : 
-* Dr. Jaswinder Singh (renowned for JaswinS Lab on Wheels) brought Physics & Maths to life through fun, simplified experiments and demonstrations.
-* Dr. Priya Darshani continued with "Universal Human Values – 1", enriching young minds with clarity and purpose.
-* Chief Guest: S. Gurucharan Singh Grewal, Secretary – SGPC encouraged students with his motivating words.
+* __Dr. Jaswinder Singh__ (renowned for JaswinS Lab on Wheels) brought Physics & Maths to life through fun, simplified experiments and demonstrations.
+* __Dr. Priya Darshani__ continued with "Universal Human Values – 1", enriching young minds with clarity and purpose.
+* Chief Guest: __S. Gurucharan Singh Grewal__, Secretary – SGPC encouraged students with his motivating words.
 
 At last, interactive discussion sessions followed, where students reflected on their English & Maths proficiency test results from Day 3.
 
