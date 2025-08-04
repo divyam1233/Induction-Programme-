@@ -12,3 +12,9 @@ Later insightful addresses were shared by:
 * Dr. Harpreet Kaur Grewal (HOD, Applied Sciences)
 * Dr. Akshay Girdhar (Dean Academics)
 * Dr. Parminder Singh (Dean Student Welfare)
+
+The Guests of Honour skyrocketed the pace of the moment by their inspirational and positive words. The Guests of Honour were: 
+* Er. Ravinder Garg — Chief Engineer, Municipal Corporation, Ludhiana
+* Er. Rakesh Kumar — GNDEC Alumnus (Batch 1991), ADC Ludhiana
+
+The event concluded with a Vote of Thanks by Dr. K.S.Mann, HOD IT.
