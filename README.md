@@ -48,3 +48,14 @@ Some experts or professionals were there in auditorium to deliver their proficie
 At last, interactive discussion sessions followed, where students reflected on their English & Maths proficiency test results from Day 3.
 
 Learning, laughter and self–discovery — all rolled into one powerful day!
+
+
+# Day 4
+Another magnificent day at GNDEC, Ludhiana welcomed the students of CSE and IT with interactive and engaging sessions.
+
+The chronology was as following: 
+* Peer to Peer session with seniors where they introduced us to world of coding. The session of C++ meant to clear basics of students regarding coding. It helped students delve deep into this world. This session was indeed helpful for us and cleared our many doubts too.
+
+* Next began session of Communicative English where every student in the classroom were asked to introduce themselves. This helped us to know each other better. The teacher corrected us at every point we made a mistake. She inspired us to be confident especially while public speaking. We learnt a lot in that session.
+
+* Eventually, all the students from CSE and IT gathered in the auditorium 
