@@ -70,3 +70,15 @@ After that, there was a lecture of chemistry where our teacher quite beautifully
 
 Finally the students gathered outside TCC Seminar Hall regarding ID Card formation.
 
+
+# Day 6
+
+The day began with chemistry lecture where we had great interaction with our teacher. We introduced ourselves to her telling about our schooling and hobbies. She told us the syllabus.
+
+Then there was maths lecture where the teacher had fun but meaningful conversation with her sharing her personal anecdotes, telling us some do's and dont's about college life and motivating us.
+
+At last all the students gathered at auditorium where Mr. Jasvir Singh Sekhon (District Resource Person – STEM) had quite engaging conversation with students regarding legacy of the college. 
+
+Then Dr. Lakhvir Singh Khana (incharge – CML) delivered a lecture on CML, NPTEL, Swayam portal. He explained about the free online courses and their lectures that are available online with exam and certificate criteria. 
+
+Dr. Arvind Dhingra (Director – STEP & Incharge – TAC) ended the event by more of fun engaging and energy generating activity rather than a long speech.
