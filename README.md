@@ -58,4 +58,10 @@ The chronology was as following:
 
 * Next began session of Communicative English where every student in the classroom were asked to introduce themselves. This helped us to know each other better. The teacher corrected us at every point we made a mistake. She inspired us to be confident especially while public speaking. We learnt a lot in that session.
 
-* Eventually, all the students from CSE and IT gathered in the auditorium 
+* Eventually, all the students from CSE and IT gathered in the auditorium where Dr. Priyadarshini gave an insightful expert lecture on Universal Human Values.
+
+The lecture was received by huge round of applause.
+
+
+# Day 5
+
