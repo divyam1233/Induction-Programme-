@@ -77,8 +77,8 @@ The day began with chemistry lecture where we had great interaction with our tea
 
 Then there was maths lecture where the teacher had fun but meaningful conversation with her sharing her personal anecdotes, telling us some do's and dont's about college life and motivating us.
 
-At last all the students gathered at auditorium where Mr. Jasvir Singh Sekhon (District Resource Person – STEM) had quite engaging conversation with students regarding legacy of the college. 
+At last all the students gathered at auditorium where __Mr. Jasvir Singh Sekhon__ (District Resource Person – STEM) had quite engaging conversation with students regarding legacy of the college. 
 
-Then Dr. Lakhvir Singh Khana (incharge – CML) delivered a lecture on CML, NPTEL, Swayam portal. He explained about the free online courses and their lectures that are available online with exam and certificate criteria. 
+Then __Dr. Lakhvir Singh Khana__ (incharge – CML) delivered a lecture on CML, NPTEL, Swayam portal. He explained about the free online courses and their lectures that are available online with exam and certificate criteria. 
 
-Dr. Arvind Dhingra (Director – STEP & Incharge – TAC) ended the event by more of fun engaging and energy generating activity rather than a long speech.
+__Dr. Arvind Dhingra__ (Director – STEP & Incharge – TAC) ended the event by more of fun engaging and energy generating activity rather than a long speech.
