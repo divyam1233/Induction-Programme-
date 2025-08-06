@@ -64,4 +64,9 @@ The lecture was received by huge round of applause.
 
 
 # Day 5
+We had the first lecture of BEEE (Bachelor of Electrical and Electronics Engineering) where the teacher gave us brief introduction regarding the subject and told us about syllabus, marks division and practical periods. She even asked every student to introduce themselves.
+
+After that, there was a lecture of chemistry where our teacher quite beautifully described us the definition of the subject and gave brief introduction of some basic concepts of chemistry.
+
+Finally the students gathered outside TCC Seminar Hall regarding ID Card formation.
 
